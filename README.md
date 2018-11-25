@@ -9,6 +9,6 @@ Another ...
 
 (i)Adobe Illistratot (ii)Adobe Photoshop (iii)MAGIX Movie Maker (iv) Unity 3d (v) Internet of Things
 
-Youtube Link : www.youtube.com/imtiazkhandoker Facebook Page : www.facebook.com/Imtiaz.Khandoker E-mail : wetopit.help@gmail.com
+Youtube Link : www.youtube.com/imtiazkhandoker Facebook Page : www.facebook.com/Imtiaz.Khandoker E-mail : czar.imtiaz@gmail.com
 
 Thank You, Imtiaz Khandoker
